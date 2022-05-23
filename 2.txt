@@ -1,0 +1,1 @@
+Edycja pliku
